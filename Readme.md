@@ -2,6 +2,3 @@
 opa
 huasuhsahusahuhuas
 
-COMITA COMITA COMITA
-
-
